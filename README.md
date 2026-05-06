@@ -1,2 +1,6 @@
 # Keep-your-standards-high
-Avoid negative distractions daily
+Avoid negative dist
+
+People who stay focused during chaos usually achieve goals faster than everyone around them.
+
+ractions daily
